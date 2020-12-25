@@ -1,1 +1,1 @@
-{RobloxTitan4223}
+[RobloxTitan4223]
